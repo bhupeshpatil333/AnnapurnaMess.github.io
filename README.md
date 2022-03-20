@@ -1,1 +1,0 @@
-# AnnapurnaMess.github.io
